@@ -38,7 +38,7 @@ Power BI • DAX • Data Visualization
 ### 📫 Connect With Me
 
 * 📧 Email: **[urvashikashyap2413@gmail.com](mailto:urvashikashyap2413@gmail.com)**
-* 💼 LinkedIn: **[Add your LinkedIn profile here]**
+* 💼 LinkedIn: **https://www.linkedin.com/in/urvashisharma24/**
 
 ### 📌 About Me
 
